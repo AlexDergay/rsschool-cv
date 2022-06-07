@@ -5,3 +5,4 @@ No programmig languges yet. Used confluence and jira, Zendesk.
 No code examples yet.
 Customer support specialist for 9 years. Abble to work with the most problematic clients of the gaming company worldwide, in English and Russian.
 Belarussian National Technical University. Time management courses, English business correspondence courses, Virtual communication, etc.
+English B2
